@@ -1,4 +1,4 @@
-# Hi. Call me Ed 🌙
+# Hi. Call me Ed 🕸️
 I am 19 years old
 
 > INTP | 5w4 sp/sx 549 | ILI (Balzac) | LEVF
