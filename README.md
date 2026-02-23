@@ -1,5 +1,3 @@
-![kek](https://pin.it/1vNpDGlcU)
-
 # Hi. Call me Ed 🕸️
 I am 19 years old
 
