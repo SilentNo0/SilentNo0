@@ -1,4 +1,4 @@
-https://media.tenor.com/abc123.gif
+https://pin.it/1vgaFO49p
 
 # Hi. Call me Ed 🕸️
 I am 19 years old
