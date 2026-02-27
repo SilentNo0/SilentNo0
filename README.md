@@ -1,5 +1,3 @@
-[0](https://github.com/SilentNo0/SilentNo0/blob/3f406dae854b5cfe39bcccbfece7126c1fed7d96/e1ae2447cc80634c37e0815bdbacc2e3.gif)
-
 # Hi. Call me Ed 🕸️
 I am 19 years old
 
