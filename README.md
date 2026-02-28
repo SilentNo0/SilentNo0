@@ -1,3 +1,5 @@
+![kek] (https://github.com/SilentNo0/SilentNo0/blob/e1c8d333d88369d54e12921cc6441f842393a383/e1ae2447cc80634c37e0815bdbacc2e3.gif)
+
 # Hi. Call me Ed 🕸️
 I am 19 years old
 
