@@ -1,5 +1,4 @@
-![GIF](https://github.com/SilentNo0/SilentNo0/blob/e1c8d333d88369d54e12921cc6441f842393a383/e1ae2447cc80634c37e0815bdbacc2e3.gif)
-
+![GIF](https://github.com/SilentNo0/SilentNo0/blob/624a723c90440e857f7e55115cf83e7868b51b9e/jjk-jujutsu-kaisen.gif)
 # Hi. Call me Ed 🕸️
 I am 19 years old
 
