@@ -1,6 +1,6 @@
 ![GIF](https://github.com/SilentNo0/SilentNo0/blob/624a723c90440e857f7e55115cf83e7868b51b9e/jjk-jujutsu-kaisen.gif)
 # Hi. Call me Ed 🕸️
-I am 19 years old (Naoi fan...)
+I am 19 years old
 
 > INTP | 5w4 sp/sx 549 | ILI (Balzac) | LEVF
 
