@@ -46,5 +46,4 @@ SPN, TLoU, BSD, One Piece, Resident Evil, JJK.
 <details>
 <summary>Full List</summary>
 
-The Boys, Elden Ring, Marvel, Shameless, MHA, Mafia (No spoilers for Part 2!), Dexter, Little Nightmares, Watch Dogs, The Evil Within, Final Fantasy, Mortal Kombat, Apex Legends, Haikyuu!!, Detroit: Become Human, Golden Kamuy, Trigun, Silent Hill, Murdered: Soul Suspect: Supernatural, God of war.
-</details>
+The Boys, Elden Ring, Marvel, Shameless, MHA, Mafia (No spoilers for Part 2!), Dexter, Little Nightmares, Watch Dogs, The Evil Within, Final Fantasy, Mortal Kombat, Apex Legends, Haikyuu!!, Detroit: Become Human, Golden Kamuy, Trigun, Silent Hill, Murdered: Soul Suspect: Supernatural, God of war, BSD, Marvel </details>
