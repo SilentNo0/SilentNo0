@@ -9,7 +9,7 @@ I am 19 years old
 ### Personality & Kin List
 kin = comfort / personality alignment, not roleplay claim
 
-* BSD: Ranpo Edogawa, Kunikida Doppo, Odasaku Sakunosuke
+* BSD: Ranpo Edogawa, Kunikida Doppo
 * SPN: Castiel
 * Haikyuu!!: Kenma Kozume, Tsukishima Kei
 * JJK: Nanami Kento
