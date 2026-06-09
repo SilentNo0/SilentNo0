@@ -1,41 +1,22 @@
 ![GIF](https://github.com/SilentNo0/SilentNo0/blob/e755298cfbb8eea7ae8f37860f8821999b2b856c/4e5e3669a2e98902cf26e7c46417f22e.jpg)
 # ᴄᴀʟʟ ᴇᴅ | 𝟏𝟗 𝚢.𝚘
 
-> INTP | 5w4 sp/sx 541 | ILI (Balzac) | LVEF
+> 𝙸𝙽𝚃𝙿 | 𝟻𝚠𝟺 𝚜𝚙/𝚜𝚡 𝟻𝟺𝟷 | 𝙸𝙻𝙸 (𝙱𝚊𝚕𝚣𝚊𝚌) | 𝙻𝚅𝙴𝙵
 
 ---
 
 ### Personality & Kin List
-kin = comfort / personality alignment, not roleplay claim
+kin = comfort / personality alignment, not roleplay comfort
 
 * BSD: Ranpo Edogawa, Kunikida Doppo
 * SPN: Castiel
 * Haikyuu!!: Kenma Kozume, Tsukishima Kei
 * JJK: Nanami Kento
+* MHA: Shinso Hitoshi, Aizava Shota
 
 ---
 
-### DNI — for my own comfort and boundaries (Do Not Interact):
-
-- under 16 (no minors, please)
-- trauma dumping 
-- self-dx / romanticizing disorders 
-- disrespecting boundaries 
-- manipulative behavior 
--unwanted flirting 
-- drama-oriented interaction
-- demand for immediate responses
-(I may not respond right away, and that's okay)
-- unsolicited advice / “fixing” behavior
-(especially mental health or personal matters)
-- boundary testing / ignoring stated limits.
-- guilt-tripping or emotional pressure. 
-
-I value calm, respectful and mutual communication.
-
----
-
-### 🎮 Fandoms
+### Fandoms
 <details>
 <summary>Main Interests (Click to expand)</summary>
 
