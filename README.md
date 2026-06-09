@@ -1,6 +1,5 @@
-![GIF](https://github.com/SilentNo0/SilentNo0/blob/624a723c90440e857f7e55115cf83e7868b51b9e/jjk-jujutsu-kaisen.gif)
-# Hi. Call me Ed 🕸️
-I am 19 years old
+![GIF](https://github.com/SilentNo0/SilentNo0/blob/e755298cfbb8eea7ae8f37860f8821999b2b856c/4e5e3669a2e98902cf26e7c46417f22e.jpg)
+# ᴄᴀʟʟ ᴇᴅ | 𝟏𝟗 𝚢.𝚘
 
 > INTP | 5w4 sp/sx 541 | ILI (Balzac) | LVEF
 
