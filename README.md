@@ -5,8 +5,8 @@
 
 ---
 
-### Personality & Kin List
-kin = comfort / personality alignment, not roleplay comfort
+### ᴘᴇʀꜱᴏɴᴀʟɪᴛʏ & ᴋɪɴ ʟɪꜱᴛ
+ᴋɪɴ = ᴄᴏᴍꜰᴏʀᴛ / ᴘᴇʀꜱᴏɴᴀʟɪᴛʏ ᴀʟɪɢɴᴍᴇɴᴛ,𝗡𝗢𝗧 ʀᴏʟᴇᴘʟᴀʏ ᴄᴏᴍꜰᴏʀᴛ
 
 * BSD: Ranpo Edogawa, Kunikida Doppo
 * SPN: Castiel
