@@ -8,11 +8,11 @@
 ### ᴘᴇʀꜱᴏɴᴀʟɪᴛʏ & ᴋɪɴ ʟɪꜱᴛ
 ᴋɪɴ = ᴄᴏᴍꜰᴏʀᴛ / ᴘᴇʀꜱᴏɴᴀʟɪᴛʏ ᴀʟɪɢɴᴍᴇɴᴛ,𝗡𝗢𝗧 ʀᴏʟᴇᴘʟᴀʏ ᴄᴏᴍꜰᴏʀᴛ
 
-* BSD: Ranpo Edogawa, Kunikida Doppo
-* SPN: Castiel
-* Haikyuu!!: Kenma Kozume, Tsukishima Kei
-* JJK: Nanami Kento
-* MHA: Shinso Hitoshi, Aizava Shota
+* BSD: 𝚁𝚊𝚗𝚙𝚘 𝙴𝚍𝚘𝚐𝚊𝚠𝚊, 𝙺𝚞𝚗𝚒𝚔𝚒𝚍𝚊 𝙳𝚘𝚙𝚙𝚘
+* SPN: 𝙲𝚊𝚜𝚝𝚒𝚎𝚕
+* Haikyuu!!: 𝙺𝚎𝚗𝚖𝚊 𝙺𝚘𝚣𝚞𝚖𝚎, 𝚃𝚜𝚞𝚔𝚒𝚜𝚑𝚒𝚖𝚊 𝙺𝚎𝚒
+* JJK: 𝙽𝚊𝚗𝚊𝚖𝚒 𝙺𝚎𝚗𝚝𝚘
+* MHA: 𝚂𝚑𝚒𝚗𝚜𝚘 𝙷𝚒𝚝𝚘𝚜𝚑𝚒, 𝙰𝚒𝚣𝚊𝚠𝚊 𝚂𝚑𝚘𝚝𝚊
 
 ---
 
