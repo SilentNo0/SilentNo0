@@ -16,7 +16,7 @@
 
 ---
 
-### Fandoms
+### ꜰᴀɴᴅᴏᴍꜱ
 <details>
 <summary>Main Interests (Click to expand)</summary>
 
