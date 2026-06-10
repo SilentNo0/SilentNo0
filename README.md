@@ -1,5 +1,5 @@
 ![GIF](https://github.com/SilentNo0/SilentNo0/blob/e755298cfbb8eea7ae8f37860f8821999b2b856c/4e5e3669a2e98902cf26e7c46417f22e.jpg)
-# ᴄᴀʟʟ ᴇᴅ | 𝟏𝟗 𝚢.𝚘
+# ᴇᴅ | 𝟏𝟗 𝚢.𝚘
 
 > 𝙸𝙽𝚃𝙿 | 𝟻𝚠𝟺 𝚜𝚙/𝚜𝚡 𝟻𝟺𝟷 | 𝙸𝙻𝙸 (𝙱𝚊𝚕𝚣𝚊𝚌) | 𝙻𝚅𝙴𝙵
 
