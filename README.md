@@ -16,5 +16,5 @@ The Boys, Elden Ring, Marvel, Shameless, MHA, Mafia (No spoilers for Part 2!), D
 ***
 
 
-DNI:under 17, and... all?
+DNI:under 17, and... that's it?
 Just don't be creepy and communicate appropriately.
