@@ -14,7 +14,3 @@ SPN, MHA, BSD, One Piece, Resident Evil, Haikyuu!!
 The Boys, Elden Ring, Marvel, Shameless, MHA, Mafia (No spoilers for Part 2!), Dexter, Little Nightmares, Watch Dogs, The Evil Within, Final Fantasy, Mortal Kombat, Apex Legends, Haikyuu!!, Detroit: Become Human, Golden Kamuy, Trigun, Silent Hill, Murdered: Soul Suspect: Supernatural, God of war, BSD, </details>
 
 ***
-
-
-DNI:under 17, and... that's it?
-Just don't be creepy and communicate appropriately.
