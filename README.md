@@ -5,7 +5,7 @@
 <details>
 <summary>Main Interests (Click to expand)</summary>
 
-SPN, MHA, BSD, One Piece, Resident Evil, Haikyuu!!
+SPN, MHA, One Piece, Resident Evil, Haikyuu!!
 </details>
 
 <details>
