@@ -21,4 +21,6 @@ The Boys, Elden Ring, Marvel, Shameless, MHA, Mafia (No spoilers for Part 2!), D
 
 • Intrusive, overly persistent, or excessively hyperactive individuals.
 
+• Flirting, sexualized humor, or vulgarity.
+
 ​Just maintain reasonable personal boundaries and stay respectful.
